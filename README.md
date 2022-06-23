@@ -1,2 +1,2 @@
-# SteamTeaching
-Teaching files
+# Steam Teaching-Denise Tinsley
+Teaching files  
