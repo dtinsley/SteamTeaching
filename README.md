@@ -1,2 +1,2 @@
 # Steam Teaching-Denise Tinsley
-Teaching files  
+Images from past classes. I the future add resources. 
